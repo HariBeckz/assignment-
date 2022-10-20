@@ -1,2 +1,0 @@
-# assignment-
-Internship assignment 
